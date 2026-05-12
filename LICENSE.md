@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket smart Algorithm: order-book-analysis & portfolio-optimization, the #1 algorithm. Includes order-book-analysis and
 
 
 
